@@ -1,5 +1,4 @@
 -HI, I'm @AGarreth23
 -I'm interested in... serving my home remodeling customers
 -I'm looking to collabarate on... my home remodeling software
--How to reach me... <a href="https://www.milwaukeemakeovers.com/"><https://www.milwaukeemakeovers.com>
--<a href="https://www.milwaukeemakeovers.com/"><Click Here!>
+-How to reach me... at my <a href="https://www.milwaukeemakeovers.com/"><Milwaukee Makeovers> website!
